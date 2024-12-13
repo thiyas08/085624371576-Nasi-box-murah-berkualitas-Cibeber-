@@ -10,4 +10,4 @@ Hubungi Kontak dibawah ini
 085624371576
 https://cateringnasiboxcimahi.blogspot.com/
 https://cateringnasiboxcimahi.blogspot.com/2024/12/085624371576nasi-box-hemat-cimahinasi.html
-https://imgur.com/gallery/085624371576-nasi-box-praktis-cimahi-nasi-box-mewah-cimahi-gnQ2Qe2
+https://www.locanto.co.id/bandung/ID_7113515609/085624371576-Paket-nasi-box-spesial-Cibeber.html
